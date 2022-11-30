@@ -1,0 +1,1 @@
+predikaattilogiikan tehtäviä
